@@ -14,5 +14,5 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-https://media.tenor.com/Fn7mny1HvWIAAAAj/troll.gif
+
 
