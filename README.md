@@ -1,4 +1,5 @@
-esse gif esplica tudo sobre isso que esta nessa plataforma
+esse gif explica tudo sobre isso que esta nessa plataforma
 
-
-![](https://media.tenor.com/AHSu6QaF2gkAAAAM/foda.gif)
+     
+     
+  ![](https://media.tenor.com/AHSu6QaF2gkAAAAM/foda.gif)
